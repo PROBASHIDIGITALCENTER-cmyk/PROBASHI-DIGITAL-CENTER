@@ -1,2 +1,2 @@
 # PROBASHI-DIGITAL-CENTER
-probashidigitalcenter-cmyk.github.io.
+https://probashidigitalcenter-cmyk.github.io/PROBASHI-DIGITAL-CENTER/
